@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-### [Ngày hôm đó, có lẽ tôi đã một lần nữa lại mỉm cười với cuộc đời của mình, dẫu cuộc đời của tôi vẫn cô độc như xưa]
+### [Ngày hôm đó, có lẽ tôi đã một lần nữa lại mỉm cười với cuộc đời của mình]
 
 
 Văn! Có vẻ như tôi sinh ra không phải là một người có duyên với văn. Mặc dù ở tiểu học hay trung học cơ sở, văn của tôi cũng không có tệ lắm; nhưng vào những năm cấp 3, nó trở thành một "vấn đề muôn thưở" của tôi suốt khoảng thời gian đó. Có lẽ bạn cũng đoán được, điểm môn "Ngữ Văn" của tôi là tệ. Chuyện này là do tôi thôi, chứ không phải do giáo viên. Các cô giáo dạy văn của tôi đều tìm mọt cách - đôi khi rất sáng tạo và "tiểu thuyết" - để khơi gợi niềm đam mê văn học trong tôi. Nhiều lúc nghĩ lại những chuyện đấy, tôi thương các cô rất nhiều vì dẫu bao công sức các cô bỏ ra, cái đầu của tôi vẫn là bất trị. Văn à?  Tôi không thích là tôi không thích.
