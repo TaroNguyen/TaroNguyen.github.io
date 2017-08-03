@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ### [Ngầy hôm đó, có lẽ tôi đã một lần nữa lại mỉm cười với cuộc đời của mình, dẫu cuộc đời của tôi vẫn cô độc như xưa]
 
