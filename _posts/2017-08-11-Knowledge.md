@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 [Kiến thức]
 Chuyện cũng cũ.
